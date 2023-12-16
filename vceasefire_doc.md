@@ -13,7 +13,7 @@ Over the last month, unfortunately, the venture capital community has been repre
 - The use of starvation & dehydration as a weapon
 - Acceleration of racist, fascist and Apartheid policies
 - Killing civilians in Lebanon & threatening to bomb Beirut
-- Attempting to cynically leverage the disgraceful history of European fascism, Nazism & the atrocity of the Holocaust in an attempt to justify Israeli extermination of Native Palestinians
+- Attempting to cynically leverage the disgraceful history of European fascism, Nazism & the atrocity of the Holocaust in an attempt to justify Israeli extermination of Palestinians
 
 The Israeli occupation has been an enduring partner to the global repression and weapons ecosystem, fostering groundbreaking technological advancements and cyberweapon innovation that are used by dictators to repress their own citizens, kill journalists & arm beligerents in other regions (for example arming Azerbaijan). The occupations's contribution to the world in terms of weapons technology, cyberweapons research, and anti-democratic tools industry is unmistakable, and we hold deep contempt for its unwavering commitment to repression all over the world.
 
